@@ -14,3 +14,11 @@ accuretly measure how close results are to the true known value,then the code ju
 accuretly measure how close results are to the true known value,then the code just might not work at all untill changes are fixed, because building up your attention span early during coding journey can help you out a lot due to there being so many thing there are to do with coding like the thing itself. 
 # September 27, 2024
 accuretly measure how close results are to the true known value,then the code just might not work at all untill changes are fixed, because building up your attention span early during coding journey can help you out a lot due to there being so many thing there are to do with coding like the thing itself. 
+# September 30, 2024
+computer sience dosent really play a huge role in my intrest by i do like the activitys.
+# October 1, 2024
+computer sience dosent really play a huge role in my intrest by i do like the activitys.
+# October 2, 2024
+same thing s october 1 
+# October 10, 2024 
+i mainly focas on the militery because thats what i want to do.
