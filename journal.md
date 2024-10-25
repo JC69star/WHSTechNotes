@@ -22,3 +22,9 @@ computer sience dosent really play a huge role in my intrest by i do like the ac
 same thing s october 1 
 # October 10, 2024 
 i mainly focas on the militery because thats what i want to do.
+# October 17, 2024
+poster presention 
+# October 18, 2024
+kwan academy check up 
+# October 22, 2024
+zumi setup
