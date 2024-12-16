@@ -32,3 +32,5 @@ zumi setup
 AI has freed employees to focus on more strategic and creative aspects of their jobs, ultimately boosting productivity and job satisfaction which is a positive inpact on most lifes 
 # December 9, 2024
 Brain rot is a condition of mental fogginess, lethargy, reduced attention span, and cognitive decline that results from an overabundance of screen time. it has had a negitive impact on my mental health.
+# December 10, 2024
+im looking forward to sleeping all break 
