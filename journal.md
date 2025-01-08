@@ -34,3 +34,5 @@ AI has freed employees to focus on more strategic and creative aspects of their 
 Brain rot is a condition of mental fogginess, lethargy, reduced attention span, and cognitive decline that results from an overabundance of screen time. it has had a negitive impact on my mental health.
 # December 10, 2024
 im looking forward to sleeping all break 
+# January 8, 2025
+ i enjoy how the activites feel like games and are mostly easy.i feel like nothing should change
