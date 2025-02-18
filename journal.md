@@ -42,3 +42,5 @@ well a lot of businesses small ones especially used that app allot to promote th
 make better improvements to current tecnoligioy.
 # February 11, 2025
 mark down table 
+# February 18, 2025
+i learned alot of basic math like how to do ratios for the asvab 
