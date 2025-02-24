@@ -44,3 +44,5 @@ make better improvements to current tecnoligioy.
 mark down table 
 # February 18, 2025
 i learned alot of basic math like how to do ratios for the asvab 
+# February 24, 2025
+
