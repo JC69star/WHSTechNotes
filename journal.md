@@ -59,3 +59,5 @@ Well for march madness and how technology has evolved during our time till now w
 i am feeling fine besides the fact school is so stressful somtimes and having to worry about my futuer also cause im on the tip of graduating i have one more year but other than that im good 
 # April 14, 2025
 i think the ban on cell phones in florda is nor rational due to technologi use and will not benifit the students what so ever.if impilmented in this school i would have to leave cause i relie on my phone for many things during school.it might have a negitive impact on students behavior although it might help also.
+# May 5, 2025
+I think 100 men could beat one gorilla because the idomitble human spirt always wins.
