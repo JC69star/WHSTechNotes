@@ -61,3 +61,5 @@ i am feeling fine besides the fact school is so stressful somtimes and having to
 i think the ban on cell phones in florda is nor rational due to technologi use and will not benifit the students what so ever.if impilmented in this school i would have to leave cause i relie on my phone for many things during school.it might have a negitive impact on students behavior although it might help also.
 # May 5, 2025
 I think 100 men could beat one gorilla because the idomitble human spirt always wins.
+# May 19, 2025
+i am ready for this summer because im going to basic training soon.
